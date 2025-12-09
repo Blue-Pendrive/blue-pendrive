@@ -3,4 +3,4 @@
 
 <p align="center">https://en.pronouns.page/@self.paced</p>
 
-<p align="center">This is all just made for fun. After all, fun is infinite.
+<p align="center">✦ This is all just made for fun. After all, fun is infinite.

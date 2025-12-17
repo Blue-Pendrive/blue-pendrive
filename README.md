@@ -15,6 +15,10 @@
 
 <p align="center"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=400&color=9F2222&center=true&vCenter=true&width=435&lines=DON%E2%80%99T+LOOK+AT+THEM;LOOK+AT+ME." /></p>
 
+<p align="center">10... 9... 8...</p>
+
+<p align="center">tick tock... the clock is ticking.</p>
+
 <p align="center"><img src="https://github.com/user-attachments/assets/07c4c569-779a-4214-9359-38c1bff261fb" /></p>
 
 <p align="center">https://en.pronouns.page/@takemewithyou</p>

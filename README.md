@@ -27,6 +27,6 @@
 
 <p align="center"><img src="https://github.com/user-attachments/assets/07c4c569-779a-4214-9359-38c1bff261fb" /></p>
 
-My [Pronouns Page](https://en.pronouns.page/@takemewithyou) and [Atabook](https://bluependrivestainedred.atabook.org/) (say hi!!)
+[Take her with you?](https://bluependrivestainedred.atabook.org/)
 
 <p align="center">✦ This is all just made for fun. After all, fun is infinite.

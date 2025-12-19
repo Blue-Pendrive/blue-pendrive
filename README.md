@@ -27,6 +27,6 @@
 
 <p align="center"><img src="https://github.com/user-attachments/assets/07c4c569-779a-4214-9359-38c1bff261fb" /></p>
 
-[Take her with you?](https://bluependrivestainedred.atabook.org/)
+[Take her with you?](https://bluependrive.atabook.org/)
 
 <p align="center">✦ This is all just made for fun. After all, fun is infinite.

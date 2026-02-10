@@ -25,7 +25,7 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/025acf94-56a9-4ecf-901f-a624e6a4e4c3" /></p>
 
 
-<p align="center"><img src="https://github.com/user-attachments/assets/07c4c569-779a-4214-9359-38c1bff261fb" /></p>
+<p align="center"><img src="https://github.com/user-attachments/assets/a6362ec8-7761-46bf-8a17-2e386a75f16b" /></p>
 
 [Take her with you?](https://bluependrive.atabook.org/)
 
@@ -38,3 +38,4 @@
 <div align="center">
   
 <img alt="Static Badge" src="https://img.shields.io/badge/Countless.%20-1?style=flat&label=Attempts%20to%20escape%20the%20blue%20pendrive%3A&color=8C2020">
+

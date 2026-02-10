@@ -33,4 +33,8 @@
 
 <div align="center">
 
+<img width="70" height="70" alt="ezgif-41875326d19cdb84" src="https://github.com/user-attachments/assets/0f594cea-365a-4f26-9cff-495f187b3132" />
+
+<div align="center">
+  
 <img alt="Static Badge" src="https://img.shields.io/badge/Countless.%20-1?style=flat&label=Attempts%20to%20escape%20the%20blue%20pendrive%3A&color=8C2020">

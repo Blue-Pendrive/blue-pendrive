@@ -18,9 +18,9 @@
 <p align="center"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=400&color=9F2222&center=true&vCenter=true&width=435&lines=Don%E2%80%99t+look+at+them;Look+at+me." /></p>
 
 
-<p align="center">10... 9... 8...</p>
+<p align="center">𝟭𝟬… 𝟵… 𝟴…</p>
 
-<p align="center">tick tock... time is running out.</p>
+<p align="center">𝘁𝗶𝗰𝗸 𝘁𝗼𝗰𝗸... time is running out.</p>
 
 <p align="center"><img src="https://github.com/user-attachments/assets/025acf94-56a9-4ecf-901f-a624e6a4e4c3" /></p>
 
@@ -29,7 +29,7 @@
 
 [Take her with you?](https://bluependrive.atabook.org/)
 
-<p align="center">✦ This is all just made for fun. After all, fun is infinite.
+<p align="center">✦ 𝗧𝗵𝗶𝘀 𝗶𝘀 𝗮𝗹𝗹 𝗷𝘂𝘀𝘁 𝗺𝗮𝗱𝗲 𝗳𝗼𝗿 𝗳𝘂𝗻. 𝗔𝗳𝘁𝗲𝗿 𝗮𝗹𝗹, 𝗳𝘂𝗻 𝗶𝘀 𝗶𝗻𝗳𝗶𝗻𝗶𝘁𝗲.
 
 <div align="center">
 

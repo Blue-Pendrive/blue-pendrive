@@ -2,7 +2,7 @@
 
 <div align="center">
 
-<p align="center"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=450&color=9F2222&center=true&vCenter=true&width=435&separator=%3C&lines=A+MONSTER%2C+I+FEEL+I%E2%80%99VE+MADE%3CA+PUZZLE+PIECE+IN+WHICH+I+DON%E2%80%99T+FIT%2C%3CA+TERRIBLE+RINGING%2C+BLOODY+SERENADE%3CTAKE+ME+WITH+YOU%2C+FROM+THIS+WORLD%3CIN+WHICH+MY+HEART%E2%80%99S+BEEN+HURT." /></p>
+<p align="center"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=450&color=9F2222&center=true&vCenter=true&width=435&separator=%3C&lines=A+monster%2C+I+feel+I%E2%80%99ve+made%3CA+puzzle+piece+in+which+I+don%E2%80%99t+fit%2C%3CA+terrible+ringing%2C+bloody+serenade%3CTake+me+with+you%2C+from+this+world%3CIn+which+my+heart%E2%80%99s+been+hurt." /></p>
 
 <p align="left">✴︎ LET US OUT</p>
 
@@ -15,7 +15,7 @@
 
 <p align="right">✴︎ NO MORE BLOOD WILL BE SPILLED</p>
 
-<p align="center"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=400&color=9F2222&center=true&vCenter=true&width=435&lines=DON%E2%80%99T+LOOK+AT+THEM;LOOK+AT+ME." /></p>
+<p align="center"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=400&color=9F2222&center=true&vCenter=true&width=435&lines=Don%E2%80%99t+look+at+them;Look+at+me." /></p>
 
 
 <p align="center">10... 9... 8...</p>

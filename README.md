@@ -25,7 +25,7 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/025acf94-56a9-4ecf-901f-a624e6a4e4c3" /></p>
 
 
-<p align="center"><img src="https://github.com/user-attachments/assets/986eb187-6367-4be1-8e0f-7ad6292f1d73" /></p>
+<p align="center"><img src="https://github.com/user-attachments/assets/ad0dfed8-0f9d-4cfa-8ea2-32027fcbb47e" /></p>
 
 [Take her with you?](https://bluependrive.atabook.org/)
 

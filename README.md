@@ -1,5 +1,3 @@
-![GitHub Views](https://komarev.com/ghpvc/?username=emf-re4der&color=8C2020)
-
 <div align="center">
 
 <p align="center"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=450&color=9F2222&center=true&vCenter=true&width=435&separator=%3C&lines=A+monster%2C+I+feel+I%E2%80%99ve+made%3CA+puzzle+piece+in+which+I+don%E2%80%99t+fit%2C%3CA+terrible+ringing%2C+bloody+serenade%3CTake+me+with+you%2C+from+this+world%3CIn+which+my+heart%E2%80%99s+been+hurt." /></p>
@@ -37,14 +35,15 @@
 
 <div align="center">
 
-<img alt="Static Badge" src="https://img.shields.io/badge/Countless.%20-1?style=flat&label=Attempts%20to%20escape%20the%20blue%20pendrive%3A&color=8C2020">
+![GitHub Views](https://komarev.com/ghpvc/?username=emf-re4der&color=8C2020&label=𝜗𝜚)
 
+<img alt="Static Badge" src="https://img.shields.io/badge/Countless.%20-1?style=flat&label=Attempts%20to%20escape%20the%20blue%20pendrive%3A&color=8C2020">
 
 <div align="center">
 <br>
 <br>
 <img width="500" height="80" alt="IMG_1433" src="https://github.com/user-attachments/assets/c6d6a7eb-8090-4456-909b-914ec00fc557" />
- 
+
 <details>
 <summary> 𝗜𝗻𝗳𝗼 !</summary>
   <div align="left">

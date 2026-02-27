@@ -36,5 +36,31 @@
 <img width="70" height="70" alt="ezgif-41875326d19cdb84" src="https://github.com/user-attachments/assets/0f594cea-365a-4f26-9cff-495f187b3132" />
 
 <div align="center">
-  
+
 <img alt="Static Badge" src="https://img.shields.io/badge/Countless.%20-1?style=flat&label=Attempts%20to%20escape%20the%20blue%20pendrive%3A&color=8C2020">
+
+
+<div align="center">
+<br>
+<br>
+<img width="500" height="80" alt="IMG_1433" src="https://github.com/user-attachments/assets/c6d6a7eb-8090-4456-909b-914ec00fc557" />
+ 
+<details>
+<summary> 𝗜𝗻𝗳𝗼 !</summary>
+  <div align="left">
+    
+⟡ This account is just for Pony Town.
+  
+⟡ You can boop, kiss or cuddle w/me at any time, really!! (but please understand that if someone is already doing that, ask them first if they're comfortable enough to cuddle with you too.)
+
+⟡ I will follow you if I find you cool teehee
+
+will PROBABLY sign your ata too because I love having silly interactions with people that have some of the same interests as me!!!
+ 
+⟡ I'm quite shy, so I'll be mostly awkwardly quiet or not talk at all, unless you're one of my comfort friends (But I can try talking to you! Communication is just not my thing with new people, I guess...)
+ 
+⟡ I might get really excited at things I like A LOT (Sinister Minds fans know about that...), that's one of the rare cases I actually interact first, which means I find you very cool and probably want to be your friend, even if I don't really know how to do it.
+
+⟡ I'm really busy right now, which is why I can't play PT that much, but I'm always playing on weekends!
+
+⟡ I currently only know how to speak Portuguese and English, and yes, I switch between them quite often with friends, so you might expect that to happen out of the sudden.

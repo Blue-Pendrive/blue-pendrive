@@ -63,3 +63,8 @@ will PROBABLY sign your ata too because I love having silly interactions with pe
 ⟡ I'm really busy right now, which is why I can't play PT that much, but I'm always playing on weekends!
 
 ⟡ I currently only know how to speak Portuguese and English, and yes, I switch between them quite often with friends, so you might expect that to happen out of the sudden.
+
+⟡ Am I working on something?:
+
+Yes, I'm working on remaking my pronouns.cc, but I'm very lazy right now.
+I might also change some things on this repository.

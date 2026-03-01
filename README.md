@@ -92,3 +92,7 @@ will PROBABLY sign your ata too because I love having silly interactions with pe
 
 Yes, I'm working on remaking my pronouns.cc, but I'm very lazy right now.
 I might also change some things on this repository.
+
+<div align="center">
+
+![IMG_1454](https://github.com/user-attachments/assets/b453c1d4-abe9-4212-bae2-c74ba738bd03)

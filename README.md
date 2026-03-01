@@ -53,7 +53,7 @@
 
 <div align="center">
 
-![GitHub Views](https://komarev.com/ghpvc/?username=emf-re4der&color=8C2020&label=𝜗𝜚)
+![GitHub Views](https://komarev.com/ghpvc/?username=emf-re4der&color=8C2020&label=🩸)
 
 <img alt="Static Badge" src="https://img.shields.io/badge/Countless.%20-1?style=flat&label=Attempts%20to%20escape%20the%20blue%20pendrive%3A&color=8C2020">
 

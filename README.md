@@ -1,17 +1,31 @@
 <div align="center">
 
-<p align="center"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=450&color=9F2222&center=true&vCenter=true&width=435&separator=%3C&lines=A+monster%2C+I+feel+I%E2%80%99ve+made%3CA+puzzle+piece+in+which+I+don%E2%80%99t+fit%2C%3CA+terrible+ringing%2C+bloody+serenade%3CTake+me+with+you%2C+from+this+world%3CIn+which+my+heart%E2%80%99s+been+hurt." /></p>
+<img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=450&color=9F2222&center=true&vCenter=true&width=435&separator=%3C&lines=A+monster%2C+I+feel+I%E2%80%99ve+made%3CA+puzzle+piece+in+which+I+don%E2%80%99t+fit%2C%3CA+terrible+ringing%2C+bloody+serenade%3CTake+me+with+you%2C+from+this+world%3CIn+which+my+heart%E2%80%99s+been+hurt." /></p>
 
-<p align="left">✴︎ LET US OUT</p>
+<div align="left">
 
-<p align="right">✴︎ PICK ME</p>
+![IMG_1453](https://github.com/user-attachments/assets/ef298b50-10d1-4840-8253-d0181d8a7e6a)
+ LET US OUT
 
+<div align="right">
+  
+![IMG_1453](https://github.com/user-attachments/assets/0c2eefd9-78dc-423d-9dce-3fddf6c95a03)
+ PICK ME
 
-<p align="center">✴︎ WHY CAN'T YOU BE CONTENT WITH THE WAY THINGS ARE?</p>
+<div align="center">
 
-<p align="left">✴︎ ME</p>
+![IMG_1453](https://github.com/user-attachments/assets/60d0c3ee-aabe-41c6-baba-c84f3fffb9ad)
+ WHY CAN'T YOU BE CONTENT WITH THE WAY THINGS ARE?
 
-<p align="right">✴︎ NO MORE BLOOD WILL BE SPILLED</p>
+<div align="left">
+
+![IMG_1453](https://github.com/user-attachments/assets/867f889b-6d88-4ede-be1e-e061061d4c42)
+ ME
+
+<div align="right">
+
+![IMG_1453](https://github.com/user-attachments/assets/16621c72-7eab-4c64-948b-709b9b01cf4d)
+ NO MORE BLOOD WILL BE SPILLED
 
 <p align="center"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=400&color=9F2222&center=true&vCenter=true&width=435&lines=Don%E2%80%99t+look+at+them;Look+at+me." /></p>
 
@@ -19,14 +33,18 @@
 <p align="center">𝟭𝟬… 𝟵… 𝟴…</p>
 
 <p align="center">𝘁𝗶𝗰𝗸 𝘁𝗼𝗰𝗸... time is running out.</p>
+<br>
 
 <p align="center"><img src="https://github.com/user-attachments/assets/025acf94-56a9-4ecf-901f-a624e6a4e4c3" /></p>
-
+<br>
 
 <p align="center"><img src="https://github.com/user-attachments/assets/ad0dfed8-0f9d-4cfa-8ea2-32027fcbb47e" /></p>
 
+<div align="center">
+
 [Take her with you?](https://bluependrive.atabook.org/)
 
+<br>
 <p align="center">✦ 𝗧𝗵𝗶𝘀 𝗶𝘀 𝗮𝗹𝗹 𝗷𝘂𝘀𝘁 𝗺𝗮𝗱𝗲 𝗳𝗼𝗿 𝗳𝘂𝗻. 𝗔𝗳𝘁𝗲𝗿 𝗮𝗹𝗹, 𝗳𝘂𝗻 𝗶𝘀 𝗶𝗻𝗳𝗶𝗻𝗶𝘁𝗲.
 
 <div align="center">
@@ -46,6 +64,12 @@
 
 <details>
 <summary> 𝗜𝗻𝗳𝗼 !</summary>
+<div align="center">
+<br>
+
+![IMG_1452](https://github.com/user-attachments/assets/4718b59e-0511-48d7-ba92-90fedb6f7951)
+
+  
   <div align="left">
     
 ⟡ This account is just for Pony Town.

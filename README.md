@@ -84,6 +84,8 @@ will PROBABLY sign your ata too because I love having silly interactions with pe
  
 ⟡ I might get really excited at things I like A LOT (Sinister Minds fans know about that...), that's one of the rare cases I actually interact first, which means I find you very cool and probably want to be your friend, even if I don't really know how to do it.
 
+⟡ Doubles PLEASE iwec, I'm very uncomfortable at having to interact with them, although I won't be agressive or anything.
+
 ⟡ I'm really busy right now, which is why I can't play PT that much, but I'm always playing on weekends!
 
 ⟡ I currently only know how to speak Portuguese and English, and yes, I switch between them quite often with friends, so you might expect that to happen out of the sudden.

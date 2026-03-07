@@ -39,7 +39,7 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/025acf94-56a9-4ecf-901f-a624e6a4e4c3" /></p>
 <br>
 
-<p align="center"><img src="https://github.com/user-attachments/assets/51c7e6aa-6545-4d67-bcc5-e5cf296cd5aa" /></p>
+<p align="center"><img width="695" height="900" alt="IMG_1473" src="https://github.com/user-attachments/assets/1aa8a472-4ac0-4e6e-ac15-d019d21d91ef" /></p>
 
 <div align="center">
 

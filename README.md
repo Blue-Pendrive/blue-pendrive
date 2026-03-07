@@ -1,3 +1,4 @@
+
 <div align="center">
 
 <img src="https://readme-typing-svg.demolab.com?font=Tiny5&duration=3000&pause=450&color=9F2222&center=true&vCenter=true&width=435&separator=%3C&lines=A+monster%2C+I+feel+I%E2%80%99ve+made%3CA+puzzle+piece+in+which+I+don%E2%80%99t+fit%2C%3CA+terrible+ringing%2C+bloody+serenade%3CTake+me+with+you%2C+from+this+world%3CIn+which+my+heart%E2%80%99s+been+hurt." /></p>
@@ -38,7 +39,7 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/025acf94-56a9-4ecf-901f-a624e6a4e4c3" /></p>
 <br>
 
-<p align="center"><img src="https://github.com/user-attachments/assets/ad0dfed8-0f9d-4cfa-8ea2-32027fcbb47e" /></p>
+<p align="center"><img src="https://github.com/user-attachments/assets/51c7e6aa-6545-4d67-bcc5-e5cf296cd5aa" /></p>
 
 <div align="center">
 

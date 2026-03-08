@@ -81,6 +81,10 @@
 
 will PROBABLY sign your ata too because I love having silly interactions with people that have some of the same interests as me!!!
  
+⟡ hi... if we're moots, please don't explode
+
+i really love yall
+
 ⟡ I'm quite shy, so I'll be mostly awkwardly quiet or not talk at all, unless you're one of my comfort friends (But I can try talking to you! Communication is just not my thing with new people, I guess...)
  
 ⟡ I might get really excited at things I like A LOT (Sinister Minds fans know about that...), that's one of the rare cases I actually interact first, which means I find you very cool and probably want to be your friend, even if I don't really know how to do it.

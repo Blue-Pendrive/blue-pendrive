@@ -99,8 +99,11 @@ i really love yall
 
 ⟡ Am I working on something?:
 
-Yes, I'm working on remaking my pronouns.cc, but I'm very lazy right now.
-I might also change some things on this repository.
+Yes, I'm working on remaking my pronouns.cc.
+
+OK MAYBE IT'S NEVER BEING REMADE AT THIS POUNT /j
+
+I'm just too busy right now and I'm trying to focus on some other things...
 
 <div align="center">
 

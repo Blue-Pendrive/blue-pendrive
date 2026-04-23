@@ -101,7 +101,7 @@ i really love yall
 
 Yes, I'm working on remaking my pronouns.cc.
 
-OK MAYBE IT'S NEVER BEING REMADE AT THIS POUNT /j
+OK MAYBE IT'S NEVER BEING REMADE AT THIS POINT /j
 
 I'm just too busy right now and I'm trying to focus on some other things...
 

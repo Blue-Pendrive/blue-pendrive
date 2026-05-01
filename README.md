@@ -73,7 +73,7 @@
   
   <div align="left">
     
-⟡ This account is just for Pony Town.
+⟡ This account was made only for Pony Town.
   
 ⟡ You can boop, kiss or cuddle w/me at any time, really!! (but please understand that if someone is already doing that, ask them first if they're comfortable enough to cuddle with you too.)
 
@@ -81,13 +81,15 @@
 
 will PROBABLY sign your ata too because I love having silly interactions with people that have some of the same interests as me!!!
  
+⟡ I'm quite shy, so I'll be mostly awkwardly quiet or not talk at all, unless you're one of my comfort friends / family (But I can try talking to you! Communication is just not my thing with new people, I guess...)
+
 ⟡ hi... if we're moots, please don't explode
 
 i really love yall
 
-⟡ I'm quite shy, so I'll be mostly awkwardly quiet or not talk at all, unless you're one of my comfort friends (But I can try talking to you! Communication is just not my thing with new people, I guess...)
+i'm sorry i don't interact much, it just takes all of my energy...
 
-⟡ If you see me alone, be sure that probably one of my friends is stalking someone nearby and I'm watching them, I'm not entirely alone 👀
+⟡ If you see me alone, you will be most likely correct to assume that one of my friends is stalking someone nearby and I'm watching them, I'm not entirely alone 👀
 
 ⟡ I might get really excited at things I like A LOT (Sinister Minds fans know about that...), that's one of the rare cases I actually interact first, which means I find you very cool and probably want to be your friend, even if I don't really know how to do it.
 
@@ -99,11 +101,9 @@ i really love yall
 
 ⟡ Am I working on something?:
 
-Yes, I'm working on remaking my pronouns.cc.
+Yes, but I'm too lazy actually
 
-OK MAYBE IT'S NEVER BEING REMADE AT THIS POINT /j
-
-I'm just too busy right now and I'm trying to focus on some other things...
+I'm more focused on my other account, parameowia, planning on having two separate atabooks for each.
 
 <div align="center">
 

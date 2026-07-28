@@ -73,37 +73,9 @@
   
   <div align="left">
     
-⟡ This account was made only for Pony Town.
-  
-⟡ You can boop, kiss or cuddle w/me at any time, really!! (but please understand that if someone is already doing that, ask them first if they're comfortable enough to cuddle with you too.)
+⟡ I'm currently "archiving" this account, maybe I'll come back here to change some things?? I'm not sure, I don't have that much of a time to do anything in this account...
 
-⟡ I will follow you if I find you cool teehee
-
-will PROBABLY sign your ata too because I love having silly interactions with people that have some of the same interests as me!!!
- 
-⟡ I'm quite shy, so I'll be mostly awkwardly quiet or not talk at all, unless you're one of my comfort friends / family (But I can try talking to you! Communication is just not my thing with new people, I guess...)
-
-⟡ hi... if we're moots, please don't explode
-
-i really love yall
-
-i'm sorry i don't interact much, it just takes all of my energy...
-
-⟡ If you see me alone, you will be most likely correct to assume that one of my friends is stalking someone nearby and I'm watching them, I'm not entirely alone 👀
-
-⟡ I might get really excited at things I like A LOT (Sinister Minds fans know about that...), that's one of the rare cases I actually interact first, which means I find you very cool and probably want to be your friend, even if I don't really know how to do it.
-
-⟡ Doubles PLEASE iwec, I'm very uncomfortable at having to interact with them, although I won't be agressive or anything.
-
-⟡ I'm really busy right now, which is why I can't play PT that much, but I'm always playing on weekends!
-
-⟡ I currently only know how to speak Portuguese and English, and yes, I switch between them quite often with friends, so you might expect that to happen out of the sudden.
-
-⟡ Am I working on something?:
-
-Yes, but I'm too lazy actually
-
-I'm more focused on my other account, parameowia, planning on having two separate atabooks for each.
+I'm much more active on my other account, parameowia, though!
 
 <div align="center">
 

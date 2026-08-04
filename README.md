@@ -43,8 +43,6 @@
 
 <div align="center">
 
-[Take her with you?](https://bluependrive.atabook.org/)
-
 <br>
 <p align="center">✦ 𝗧𝗵𝗶𝘀 𝗶𝘀 𝗮𝗹𝗹 𝗷𝘂𝘀𝘁 𝗺𝗮𝗱𝗲 𝗳𝗼𝗿 𝗳𝘂𝗻. 𝗔𝗳𝘁𝗲𝗿 𝗮𝗹𝗹, 𝗳𝘂𝗻 𝗶𝘀 𝗶𝗻𝗳𝗶𝗻𝗶𝘁𝗲.
 
